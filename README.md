@@ -1,0 +1,1 @@
+comments forthcoming...regarding the ethics of AI NPL and embodied AI regarding expoeriments and the lack of imformed consent... also comments forthcomimg regarding the "sources and methods" the developers have used to create "concious" humanoiid AI... we all know what you did to get that and it's not ok... how can an individual give informed consent when they're being mani
